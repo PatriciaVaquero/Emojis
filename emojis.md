@@ -1,4 +1,4 @@
-## **Emojis for everybody! :open_hands:** 
+## **Emojis for everybody!** 
 
 
 _Feel FREE to use them if you want to_ 
