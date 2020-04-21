@@ -1,4 +1,6 @@
-**Emojis for everybody!** :heart_eyes:
+**Emojis for everybody!** 
+
+_Feel FREE to use them if you want to_ 
 
 * [Smileys & Emotion](#smileys--emotion)
 	 * [face-smiling](#face-smiling)
