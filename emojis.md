@@ -1,7 +1,7 @@
 ## **Emojis for everybody!** 
 
 
-_Feel FREE to use them if you want to_ 
+_Feel FREE to use them if you want to :)_ 
 
 * [Smileys & Emotion](#smileys--emotion)
 	 * [face-smiling](#face-smiling)
